@@ -1,2 +1,2 @@
 # HFUT-Wanglei.github.io
-This is wanglei's own blog
+This is Wanglei's own blog(*^__^*) 嘻嘻……
